@@ -14,7 +14,7 @@ $\large\text{\color{#2c414c}{▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|
 
 <div align="center">
 
-<img width="295" height="50" alt="tumblr_024b936bfba7b09f8079958bfb5a197f_cc83d405_500" src="https://file.garden/ZroW4OcqSGtS0a5j/sejopi%20is%20mephiles.png" />
+<img width="292" height="59" alt="fictkin" src="https://github.com/user-attachments/assets/d718687c-de35-4c0b-834a-f7bee3627a01" />
 
 </p>
 
