@@ -6,9 +6,17 @@
 
 </a>
 
+<img width="295" height="50" alt="tumblr_024b936bfba7b09f8079958bfb5a197f_cc83d405_500" src="https://file.garden/ZroW4OcqSGtS0a5j/userbox%20(4).png" />
+
 $\large\text{\color{#2c414c}{▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 𝟑:𝟑𝟔 — 𝟑:𝟓𝟔}}$
 
 ***
+
+<div align="center">
+
+<img width="295" height="50" alt="tumblr_024b936bfba7b09f8079958bfb5a197f_cc83d405_500" src="https://file.garden/ZroW4OcqSGtS0a5j/sejopi%20is%20mephiles.png" />
+
+</p>
 
 <img width="600" height="275" alt="tumblr_024b936bfba7b09f8079958bfb5a197f_cc83d405_500" src="https://github.com/user-attachments/assets/dd272aba-fcd8-4051-b66f-cf8a330eb2b4" />
 
